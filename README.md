@@ -1,4 +1,4 @@
-# theenvironmentalministry.github.io
+
 <h1>The earth is the Lord’s, and everything in it.
     The world and all its people belong to him. - Psalm 24:1 (NLT)<br/>
     <br/>
